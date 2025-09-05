@@ -7,3 +7,7 @@ i feel i've been too friendly to you.  things could be better but we dont make a
 sir.  you dont have the same responsibilities as me.  why are you pressing them on me??  oh well i forgot what i was saying.  i just enjoy reading this cause it brings some relief that the mind is not totally destroyed lol...  i wonder you know i asked for a break a while ago and you play linkedin games with me.  i dont enjoy this particularly...  but you must understand, i cannot be bugged about every single bit of crime here and there and the fact that none of this was the case cause people responsible for their actions??
 
 i feel we are near the ends of this line my friend.  it was a pleasure with you sitting on your ass hiding, but whatever.
+
+yeah i'm clean outta ideas what you wanted.  we invented a decade of work that your stupid ass can't do if your lives depended on it.  and i get my monees.  some day...  too late bro...  this entered a bad time phase.  i dont think we can move forward with things this way... i wonder why you think i need to do this...
+
+oh well i forgot. i forget i suffer from things...  this is not working out i dont nkow wnhy we continue with it...  oh well bye for a while bro.. i have nothing to say to you lol.. this just lame. it is what it is.  just dont expect things...
